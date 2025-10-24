@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Software Programming
 - 💞️ I’m looking to collaborate on making websites
 - 📫 How to reach me
-- 1.via email:phimjxxx@gmail.com
+- 1.via omphemetsemalatsi1@gmail.com
 - 2. Whatsapp/Telegram: 0605840098
 
 <!---
